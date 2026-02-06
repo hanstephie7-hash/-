@@ -1,2 +1,2 @@
 # -
-✦ Be active, be kind, and enjoy the anime ride 
+✦ Just trying out something new
